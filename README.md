@@ -13,6 +13,10 @@
 **我们二班特供**
  ![2班Meow](Meow2502.png)
 
+**AI画得**
+![Picture1](Meowwww.jpeg)
+
+
 
 # 我的账号
 
